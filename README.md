@@ -11,3 +11,5 @@ my lip gloss is kewww
 all the boys keep stoppin'
 they chase me after school
 myyyyyy lip gloss is poppin
+
+YEUHH GURL!
