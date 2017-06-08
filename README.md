@@ -13,3 +13,5 @@ they chase me after school
 myyyyyy lip gloss is poppin
 
 YEUHH GURL!
+
+Remember those walls I built
